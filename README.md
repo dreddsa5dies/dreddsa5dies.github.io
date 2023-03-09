@@ -1,2 +1,1 @@
 сайт-визитка
-funviktor.com
